@@ -1,2 +1,2 @@
 # Hello-World
-Ey! ro, It's me, CartnanTook XD
+Ey! Bro, It's me, CartnanTook XD
